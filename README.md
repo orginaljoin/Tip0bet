@@ -1,6 +1,7 @@
 # 🎯 NeedSEO — Bahis Siteleri İçin Zirveye Giden Yol!
 
-![NeedSEO Banner](./Design.png)
+<a href="https://t.me/NeedSeo" title="Needseo" style="display:inline-block; margin-right:12px;">
+<a href="https://resmim.net/"><img src="https://resmim.net/cdn/2025/05/24/TNtrlH.jpg" alt="resim yükle" border="0" /></a>
 
 > **Google'da zirveye oynayın, sahte sitelere kırmızı kart!**  
 > Arama sonuçlarının yıldızı olun, markanızı hedef tahtası olmaktan kurtarın.  
