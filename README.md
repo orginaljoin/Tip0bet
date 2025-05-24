@@ -1,7 +1,7 @@
 # 🎯 NeedSEO — Bahis Siteleri İçin Zirveye Giden Yol!
 
-<a href="https://t.me/NeedSeo" title="Jojobet Bonus Fırsatları">
-    <img src="https://resmim.net/cdn/2025/05/24/TNtrlH.jpg" alt="Betwoon Bonus Kazan" style="max-width:100%; height:auto; border-radius:8px;">
+<a href="https://t.me/NeedSeo" title="needseohizmetleri koruma">
+    <img src="https://resmim.net/cdn/2025/05/24/TNtrlH.jpg" alt="needseohizmetleri koruma" style="max-width:100%; height:auto; border-radius:8px;">
 </a>
 
 > **Google'da zirveye oynayın, sahte sitelere kırmızı kart!**  
@@ -41,7 +41,7 @@ Sitenizi korumaya almak ve sıralamanızı yükseltmek için:
 ## 📩 Contact
 
 Her şey bir mesajla başlar:  
-👉 **[https://t.me/NeedSeo](https://t.me/NeedSeo)**
+👉 **[@NeedSeo](https://t.me/NeedSeo)**
 
 ---
 
